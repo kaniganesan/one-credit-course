@@ -1,1 +1,0 @@
-# one-credit-course
